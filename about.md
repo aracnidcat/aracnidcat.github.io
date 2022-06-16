@@ -1,0 +1,1 @@
+<p>I'm a digital creative. I'm always passionate about creating more and experimenting with new media. With a school background in audiovisual media, I've worked in many kinds of industries. If you have a project involving pictures, video, animation, or other media, contact me.</p>
